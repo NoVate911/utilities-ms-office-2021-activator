@@ -1,5 +1,5 @@
 <h1 align="center">
-  <img src="https://i.imgur.com/iasKyQU.png" title="MS Office 2021 Activator" alt="MS Office 2021 Activator">
+  <img src="https://i.imgur.com/3F5QHR5.png" title="MS Office 2021 Activator" alt="MS Office 2021 Activator">
 </h1>
 
 <p align="center">
